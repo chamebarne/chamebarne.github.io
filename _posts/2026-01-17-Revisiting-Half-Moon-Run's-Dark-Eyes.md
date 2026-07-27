@@ -23,7 +23,7 @@ The album resounds in my memories of late high school and early college. I liste
 
 I don’t think I have any business rating albums. I won’t be giving it a numerical score or a star rating. All I can really say is that *Dark Eyes* is a long-time favorite of mine, and that if you have been at all interested in my descriptions or anecdotes, then I recommend taking 45 minutes to listen to it. In my mind it’s kind of a sleeper hit, and a “cult” classic in both senses of the term. Half Moon Run seems to have maintained a devoted fanbase over the years, which makes me happy. They left a lasting impression on me, so it just felt right to share my appreciation for them. I’ll be listening to *Dark Eyes* again at the next séance.
 
-Cheers,
+Cheers,\
 Jamie Barne
 
 *Still as rain*  
