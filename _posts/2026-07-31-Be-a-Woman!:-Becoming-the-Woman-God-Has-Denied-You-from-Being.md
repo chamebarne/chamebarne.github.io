@@ -1,4 +1,4 @@
-[This post is part of a series. You can navigate through it with the following links: NEXT (coming soon)]  
+[This post is part of a series. You can navigate through it with the following links: [Chapter 1](https://chamebarne.github.io/2026/08/31/Be-a-Woman!-Chapter-1.html)]  
 
 # Introduction
 
