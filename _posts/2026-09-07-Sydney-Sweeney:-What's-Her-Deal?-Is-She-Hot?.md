@@ -1,6 +1,6 @@
 Sydney Sweeney. Lots of people talking about her these days. Well I’m gonna talk about her, too. I want to know what all the fuss is about. Maybe I’ll get to know her a little better by the end of this, who knows.
 
-To be perfectly honest, I know next to nothing about this woman. Here’s everything I know about her: she is blonde; she has blue eyes; she is on a show called *Euophoria* that I have never watched; she once did a blue jeans commercial for American Eagle that was very obviously a nazi dog whistle; she might be bimbo enough to not have realized said advertisement was a nazi dog whistle; she has HUGE bazongas; everyone talks about how hot she is (but is she?); and most importantly, her breast’s are big. Oh, and she’s got boobs. Has anyone else noticed this? That’s literally all I know.
+To be perfectly honest, I know next to nothing about this woman. Here’s everything I know about her: she is blonde; she has blue eyes; she is on a show called *Euphoria* that I have never watched; she once did a blue jeans commercial for American Eagle that was very obviously a nazi dog whistle; she might be bimbo enough to not have realized said advertisement was a nazi dog whistle; she has HUGE bazongas; everyone talks about how hot she is (but is she?); and most importantly, her breast’s are big. Oh, and she’s got boobs. Has anyone else noticed this? That’s literally all I know.
 
 The other thing I know is that conservative men really seem to like her, apparently because she is a blonde-haired, blue-eyed, big-breasted woman. Reigning theories run that such men who like her want to retvrn to tradition: namely, the tradition of aryan women and mommy’s milkies. Just like the good ol’ days. Sydney Sweeney represents what “they” took from men, or something. Finally, a real, traditionally hot woman in Hollywood! They don’t make ‘em like that anymore, that’s for sure. Hot women are back, and they are buxom. Now real, traditional men can regress—I mean, retvrn—as well.
 
@@ -17,4 +17,4 @@ That’s right. Sydney Sweeney and I are perfect lookalikes—basically twins. B
 So, is Sydney Sweeney hot? Some say yes. I also say yes. But she’s not as hot as me, on account of her boobs not being as perfect as mine. Yeah, I said it. If you’re reading this, Sydney Sweeney, my boobs are superior to yours. If you have a problem with that, I dare you to come over and we can compare them side by side.
 
 Let's settle this once and for all.\
-Jamie Barne
+Jamie Barne <3
